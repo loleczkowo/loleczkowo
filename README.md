@@ -4,4 +4,4 @@
 - 📫 How to reach me: Gmail 'Szymon.Kondratek@gmail.com'
 - 😄 Pronouns: He/Him(/nerd)
 - ⚡ Fun fact: i spend all my knowledge points on P R O G R A M I N G
-- btw i have a website if u want u can visit it [loleczkowo.pl](https://www.loleczkowo.pl/) (if its down please mail me!)
+- btw i have a website if u want u can visit it [loleczkowo.com](https://www.loleczkowo.com/) (if its down please mail me!)
